@@ -1,0 +1,1 @@
+# Sharpe-oran-hesaplay-c-final-ncesi-dev2-
